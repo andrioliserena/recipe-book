@@ -1,1 +1,2 @@
-2 eggs, 1 cup of sugar
+2 eggs, milk
+
